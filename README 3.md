@@ -1,1 +1,0 @@
-Sofia Pirogova, Dmitrii Kuptsov
